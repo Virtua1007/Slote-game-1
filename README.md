@@ -1,1 +1,0 @@
-# Slote-game-1
